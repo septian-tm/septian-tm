@@ -1,5 +1,5 @@
 # 💫 About Me:
-I am a university student from a private institution in Jakarta, specializing in Cyber Security and Informatics. I have a strong passion for technology development and information security, constantly striving to learn and expand my knowledge in these fields.<br><br>Currently, I am open to collaborations or partnerships in projects related to Cyber Security and Informatics. If you have opportunities or ideas to discuss, feel free to reach out to me.<br><br>Let’s work together to create innovative solutions in the tech world!
+I am a Student from a Universitas Budi Luhur in Jakarta, specializing in Cyber Security and Informatics. I have a strong passion for technology development and information security, constantly striving to learn and expand my knowledge in these fields.<br><br>Currently, I am open to collaborations or partnerships in projects related to Cyber Security and Informatics. If you have opportunities or ideas to discuss, feel free to reach out to me.<br><br>Let’s work together to create innovative solutions in the tech world!
 
 
 ## 🌐 Socials:
